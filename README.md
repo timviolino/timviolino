@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @timviolino
-- I'm a Mech E. but recently I've been coding more than CADing
-- I like to run and find little green magnets in the woods
-- Hope to one day eat Scarlett's pasta from Chef
+- 🔧 I'm a "Mech E." but lately I've been coding more than CADing
+- 🌲 Hobbies include running and finding little green magnets in the woods
+- 🍝 Hope to one day eat Scarlett's pasta from Chef
