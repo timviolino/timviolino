@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @timviolino
-- 🔧 I'm a Mech E, but I do coding as well as CADing
 - 🌲 Hobbies include running, reading, and gardening
